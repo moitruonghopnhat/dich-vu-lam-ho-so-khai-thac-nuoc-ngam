@@ -139,7 +139,6 @@ Việc chuẩn bị đúng hồ sơ ngay từ đầu không chỉ giúp doanh ng
 Quý Doanh nghiệp có nhu cầu tư vấn, lập hồ sơ khai thác nước ngầm hoặc các loại [hồ sơ môi trường](https://moitruonghopnhat.com/ho-so-moi-truong/) khác có thể liên hệ Hợp Nhất để được hỗ trợ.
 
 - **Hotline:** 0938.857.768
-- **Website:** [Môi trường Hợp Nhất](https://moitruonghopnhat.com/)
 
 ## Xem thêm
 
