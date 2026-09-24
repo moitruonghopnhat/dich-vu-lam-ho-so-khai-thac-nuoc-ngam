@@ -2,7 +2,6 @@
 
 > **Dịch vụ làm hồ sơ khai thác nước ngầm** của Hợp Nhất hướng đến việc hỗ trợ doanh nghiệp xác định đúng thủ tục cần thực hiện, khảo sát hiện trạng, chuẩn bị hồ sơ kỹ thuật và pháp lý, đồng thời hỗ trợ trong quá trình nộp, thẩm định và giải trình hồ sơ với cơ quan có thẩm quyền.
 
-> **Cập nhật pháp lý:
 
 ## Nội dung chính
 
